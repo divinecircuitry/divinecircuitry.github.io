@@ -1,2 +1,2 @@
 # divinecircuitry.github.io
-# im so gay
+im not gay anymore
